@@ -5,7 +5,7 @@
 
 - 👯 I’m looking for a job in **UAE as a Software Test Engineer**
 
-- 📫 How to reach me **sruthylekshmivijayan@gmail.com**
+- 📫 Reach me at **sruthylekshmivijayan@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
